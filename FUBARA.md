@@ -37,6 +37,13 @@ Ted needs a beer. What about the rest of team? Ted could go for some snacks as w
 Alice and Bob (the real Bob) is now definitely screwing this up.
 Ted and Carol here.  Wut wut!!!
 
+
+
+Bob's turn yet again, yaaaaaaaaay me.
+
+oh man im carol this time boy am i excited
+
 Excellent, party on, Ted!!! word.
 
 oh man im carol this time boy am i excited
+
