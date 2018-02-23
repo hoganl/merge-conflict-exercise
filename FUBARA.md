@@ -25,5 +25,5 @@ Adding a whole lotta nothing like usual. Ted and Alice.
 
 More changes courtesy of Ted and Carol?
 
-Ted needs a beer. What about the rest of team?
+Ted needs a beer. What about the rest of team? Ted could go for some snacks as well. SNNNNNAAAAAACCCCKKKKKK!!!!!!!
 
