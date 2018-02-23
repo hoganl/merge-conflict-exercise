@@ -21,9 +21,13 @@ Sincerely, Carol and Ted.
 
 Bob, it's Bob Deniro not Robert.  Nobody calls him Robert.  
 
-=======
+
 Adding a whole lotta nothing like usual. Ted and Alice.
 
 More changes courtesy of Ted and Carol?
 
+
 bob and alice are not doing this right
+
+Carol and Bob here, we just came up with the most awesome stuff.  Really it's great.  It's the greatest great in the history of great!  You have no idea.
+
