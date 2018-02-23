@@ -14,7 +14,7 @@ master
 
 This is Alice.  Just puttiong a vote in for team name, techo-gecko FTW!!!
 
-round3 ya'll, let's screw this up reaaaaaaaaal good. 
+round3 ya'll, let's screw this up reaaaaaaaaal good.
 
 Sincerely, Carol and Ted.
 
