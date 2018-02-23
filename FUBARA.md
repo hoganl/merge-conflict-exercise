@@ -21,8 +21,9 @@ Sincerely, Carol and Ted.
 
 Bob, it's Bob Deniro not Robert.  Nobody calls him Robert.  
 
-=======
 Adding a whole lotta nothing like usual. Ted and Alice.
 
 More changes courtesy of Ted and Carol?
+
+Ted needs a beer. What about the rest of team?
 
