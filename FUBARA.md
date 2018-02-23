@@ -1,0 +1,1 @@
+This is Bob's and Carol's contribution to this mess. This mess was started on Carol's computer. Bob is failing us, we might have to let him go soon. Carol however, is the fun sassy one who everybody avoids actually to be honest. 
