@@ -25,5 +25,12 @@ Adding a whole lotta nothing like usual. Ted and Alice.
 
 More changes courtesy of Ted and Carol?
 
+
+
+bob and alice are not doing this right
+
+Carol and Bob here, we just came up with the most awesome stuff.  Really it's great.  It's the greatest great in the history of great!  You have no idea.
+
 Ted needs a beer. What about the rest of team? Ted could go for some snacks as well. SNNNNNAAAAAACCCCKKKKKK!!!!!!! NOW!!!
+
 
